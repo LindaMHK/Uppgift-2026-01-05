@@ -1,2 +1,2 @@
 # Uppgift-2026-01-05
-# Ingen riktig hemsida
+OBS! Ingen riktig hemsida utan enbart en uppgift :)
